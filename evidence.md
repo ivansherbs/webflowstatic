@@ -1,10 +1,11 @@
+# Proven Effectiveness and Evidence
+
+Ivan Chai is made from the fermented leaves of fireweed (*Epilobium angustifolium*). Read below the proven effectiveness of this plant species.
+
 (img ivan_chai_pot.jpg)
 
 
 
-# Proven Effectiveness and Evidence
-
-Ivan Chai is made from the fermented leaves of fireweed (*Epilobium angustifolium*). Read below the proven effectiveness of this plant species.
 
 ## Urinary tract and prostate health
 The European Medicines Agency (EMA) has approved fireweed for “**relief of lower urinary tract symptoms** related to benign prostatic hyperplasia” in their final assessment of Epilobium angustifolium [1].
@@ -17,6 +18,8 @@ Other speicies of Epilobium were used to treat prostatitis and urinary tract sym
 
 Ivan Chai is caffeine free. It helps you get to sleep and overcome sleep disorders. It’s a known mild sedative in folk medicine [11,14]. Science does not yet know exactly how it aids in sleep disorders [6,11].
 
+(img flower_close_up)
+
 ## Inflammation
 
 It has been well studied in academia to determine that fireweed is a powerful anti-inflammatory [2,6,9,11]. It has been proven to be more effective than cortisone in suppressing inflammation [14]. 
@@ -25,10 +28,14 @@ It has been well studied in academia to determine that fireweed is a powerful an
 
 Ulcers, gastritis, and colitis can all be remedied by drinking Ivan Chai [6,14]. It helps prevent inflammation of the stomach lining, as well as the smaller and larger intestine. It serves to stabilise digestive imbalances for those with irritable bowel syndrome or undergoing changes in their diet. The Woodlands Cree people had learned that intestinal parasites could be eliminated by drinking a decoction made from the entire fireweed plant [14]. 
 
+
+
 # Preparation
 To prepare a fireweed infusion, brew 2 g (1 teaspoon) in 1 cup (250 mL) of boiling water (70°C or higher) for 5-8 minutes and then strain.
 
 Tastes similar to black tea, but more earthy and naturally sweet. Does not become bitter if left to brew too long.
+
+(img teaspoon.jpg)
 
 # Dosage and course of treatment
 Drink 1 cup before meals 2 times daily for at least 10 days.
@@ -38,6 +45,7 @@ For a chronic health issue drink 1 cup before meals 3 times daily.
 If your health issues have been remedied, you can stop taking fireweed on a regular basis. Restart treatment if symptoms reappear.
 
 This therapeutic dose is continually referenced in the Europeans Medicines Agency’s final assessment [1].
+
 
 
 # Safety, contraindications and warnings
@@ -53,13 +61,19 @@ It's always advised to consult your health professional and do your own research
 
 The EMA has claimed that ‘due to the widespread traditional medicinal use for more than 30 years the safety of Epilobium angustifolium… can be assumed' [1].
 
+
+
 # Cultural History of Fireweed as Ivan Chai
 
 In the 16th century, Russian monks were forbidden to drink coffee or tea because caffeine was believed by the Russian federal government to cause "intoxication". The monks, seeking alternative beverages, harvested herbs from wild fields and produced their own herbal infusions. The monks noticed that fireweed produced a fragrant floral infusion that had a noticeable effect on their mental state and overall health. The herbal infusion soon became immensely popular with Russians and Europeans alike.
 
+(img history.jpg)
+
 The term "Ivan Chai" was given to the herbal infusion by the foreigners who still enjoyed it in England and other European countries. Its popularity in England grew so drastically that by the end of the 19th century it was most likely noticed as a small threat to the Dutch East India Company. Rumours were supposedly spread that the Russians were poisoning Ivan Chai with white clay.
 
 In the aftermath of the Russian Revolution of 1917, commercial production ceased and the consumption of Ivan Chai had practically fell to zero for Russia and the rest of Europe. Even in Russia, this beneficial herbal infusion remains somewhat unknown and is slowly making a revival.
+
+
 
 ### Works Cited
 
