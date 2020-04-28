@@ -4,7 +4,7 @@
 
 ## What is Ivan Chai?
 
-Once popular in Europe and Russian, Ivan Chai is herbal tea made from the fermented leaves of fireweed. It has a lightly sweet, floral and earthy flavour. It's known health benefits are:
+Ivan Chai is herbal tea made from the fermented leaves of fireweed. It has a lightly sweet, floral and earthy flavour. It's known health benefits are:
 
 - Supports prostate and urinary tract health.
 - Slightly sedative that improves sleep, reduces stress, and lessens anxiety.
