@@ -81,7 +81,7 @@ In the aftermath of the Russian Revolution of 1917, commercial production ceased
 
 [2] Battinelli, Lucia, et al. “Antimicrobial Activity of Epilobium Spp. Extracts.” Il Farmaco, vol. 56, no. 5-7, 2001, pp. 345–348., doi:10.1016/s0014-827x(01)01047-3.
 
-[3] Borchardt, Joy R., et al. “Antimicrobial Activity of Native and Naturalized Plants of Minnesota and Wisconsin.” African Journal of Pure and Applied Chemistry, Academic Journals, 31 May 2009, academicjournals.org/journal/JMPR/article-abstract/F3DA2A816158.
+[3] Borchardt, Joy R., et al. “Antimicrobial Activity of Native and Naturalized Plants of Minnesota and Wisconsin.” African Journal of Pure and Applied Chemistry, Academic Journals, 31 May 2009, https://academicjournals.org/articles/j_articles/JMPR.
 
 [4] Deng, Liqing, et al. “Evaluation of the Therapeutic Effect against Benign Prostatic Hyperplasia and the Active Constituents from Epilobium Angustifolium L.” Journal of Ethnopharmacology, vol. 232, 2019, pp. 1–10., https://www.sciencedirect.com/science/article/pii/S0378874118328782?via%3Dihub.
 
